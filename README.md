@@ -5,9 +5,9 @@ Helping businesses grow through strategic marketing, technology, partnerships, a
 
 📍 Nairobi, Kenya
 🌐 www.mjc-a.com
-📧 your-email@example.com
-📞 Your Phone Number
-💼 LinkedIn: Your LinkedIn URL
+📧 ceo@mjc-a.com
+📞 0792104656
+💼 LinkedIn: https://www.linkedin.com/in/julius-chilango-a14822183/
 
 About Me
 
@@ -22,7 +22,7 @@ I believe that the future belongs to businesses that successfully combine techno
 Professional Experience
 Founder & CEO — MJC Africa Ltd
 
-2021 – Present
+2024 – Present
 
 Leading a full-service marketing and communications agency specializing in:
 
@@ -146,10 +146,11 @@ Let's Connect
 
 Whether you're looking for a marketing partner, business strategist, technology consultant, or collaboration opportunity, I'd love to connect.
 
-📧 your-email@example.com
+📧 ceo@mjc-a.com
 
-📞 your-phone-number
+📞 0792104656
 
 🌐 https://www.mjc-a.com
 
-💼 LinkedIn: your-linkedin-profile
+💼 LinkedIn: https://www.linkedin.com/in/julius-chilango-a14822183/
+
