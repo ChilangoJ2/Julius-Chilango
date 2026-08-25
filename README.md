@@ -11,7 +11,7 @@ Helping businesses grow through strategic marketing, technology, partnerships, a
 
 About Me
 
-I am a product manager, desogner, entrepreneur, business strategist, and Certified Kotlin Developer with a passion for helping organizations grow through innovative marketing and technology solutions.
+I am a product manager, designer, entrepreneur, business strategist, and Certified Kotlin Developer with a passion for helping organizations grow through innovative marketing and technology solutions.
 
 As the Founder and CEO of MJC Africa Ltd, I lead a team that delivers integrated marketing solutions across East Africa, helping brands increase visibility, strengthen customer relationships, and achieve measurable business growth.
 
