@@ -7,7 +7,7 @@ Helping businesses grow through strategic marketing, technology, partnerships, a
 
 📍 Nairobi, Kenya
 🌐 www.mjc-a.com
-📧 ceo@mjc-a.com
+📧 chilango@mjc-a.com
 📞 0792104656
 💼 LinkedIn: https://www.linkedin.com/in/julius-chilango-a14822183/
 
@@ -235,7 +235,7 @@ Inspiring Brands. Driving Impact.
 
 Let's connect.
 
-📧 ceo@mjc-a.com
+📧 chilango@mjc-a.com
 
 📞 0792104656
 
