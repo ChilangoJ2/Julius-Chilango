@@ -1,5 +1,7 @@
-Julius Chilango
-Founder & CEO, MJC Africa Ltd | Certified Kotlin Developer | Marketing Strategist
+JULIUS CHILANGO
+Founder & CEO | Product Manager | Commercial & Growth Leader
+
+Building solutions where business growth, technology and real-world impact meet.
 
 Helping businesses grow through strategic marketing, technology, partnerships, and innovation.
 
